@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @alan6333
-- 🌱 I’m currently learning EVERYTHING
 - 📫 How to reach me alan6333.business@gmail.com
 
 <!---
